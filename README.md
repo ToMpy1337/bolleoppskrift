@@ -1,6 +1,6 @@
 # Thomas sin fantastiske bolleoppskrift
 
-Her kommer en oppskrift på noen herlige boller
+Her kommer en oppskrift på noen herlige boller. Disse kan du servere hvis du får besøk. De er kjappe å lage og de blir veldig gode.
 
 ## Ingredienser
 
