@@ -7,6 +7,7 @@ Her kommer en oppskrift på noen herlige boller
 - Melk
 - Gjer
 - Sjokolade
+- Sukat. Hvem i alle dager bruker sukat?
 
 ## Slik gjør du
 
